@@ -1,1 +1,1 @@
-The 1990s produced iconic pop stars like Britney Spears, Christina Aguilera, and the Backstreet Boys, who dominated the charts and shaped the pop music landscape.
+Songs like "I Am a Man of Constant Sorrow" performed by The Soggy Bottom Boys and "Down to the River to Pray" by Alison Krauss contributed to the soundtrack's acclaim.
