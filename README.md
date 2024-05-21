@@ -1,1 +1,1 @@
-Songs like "I Am a Man of Constant Sorrow" performed by The Soggy Bottom Boys and "Down to the River to Pray" by Alison Krauss contributed to the soundtrack's acclaim.
+The popularity of MTV's "Unplugged" series in the 1990s led to iconic acoustic performances by artists like Nirvana, Eric Clapton, and Alice in Chains.
