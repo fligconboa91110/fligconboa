@@ -1,1 +1,1 @@
-The popularity of MTV's "Unplugged" series in the 1990s led to iconic acoustic performances by artists like Nirvana, Eric Clapton, and Alice in Chains.
+The Notorious B.I.G.'s debut album "Ready to Die" (1994) established him as one of the greatest rappers of all time, featuring tracks like "Juicy" and "Big Poppa."
