@@ -1,1 +1,1 @@
-The Notorious B.I.G.'s debut album "Ready to Die" (1994) established him as one of the greatest rappers of all time, featuring tracks like "Juicy" and "Big Poppa."
+Britney Spears released her second studio album, "Oops!... I Did It Again," in May 2000, featuring hit singles like the title track and "Stronger."
