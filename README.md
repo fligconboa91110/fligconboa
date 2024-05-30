@@ -1,1 +1,1 @@
-The soundtrack for the film "O Brother, Where Art Thou?" was released in 2000 and became a surprise success, winning the Grammy Award for Album of the Year in 2002.
+The popularity of MP3 players like the iPod, introduced by Apple in 2001, revolutionized how people consumed and listened to music on the go.
