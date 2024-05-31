@@ -1,1 +1,1 @@
-The popularity of MP3 players like the iPod, introduced by Apple in 2001, revolutionized how people consumed and listened to music on the go.
+Daft Punk's debut album "Homework" (1997) revolutionized electronic music with its blend of house, techno, and funk, influencing a generation of artists.
