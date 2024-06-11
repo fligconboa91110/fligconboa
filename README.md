@@ -1,1 +1,1 @@
-Tupac Shakur released multiple iconic albums in the 1990s, including "2Pacalypse Now" (1991), "Me Against the World" (1995), and "All Eyez on Me" (1996).
+"Gangnam Style" by Psy, released in 2012, became the first YouTube video to reach one billion views and sparked a global dance craze.
