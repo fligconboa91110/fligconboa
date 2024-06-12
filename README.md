@@ -1,1 +1,1 @@
-"Gangnam Style" by Psy, released in 2012, became the first YouTube video to reach one billion views and sparked a global dance craze.
+The rise of digital music piracy, facilitated by peer-to-peer file-sharing services like Napster, challenged the music industry's traditional business model in the early 2000s.
