@@ -1,1 +1,1 @@
-The rise of digital music piracy, facilitated by peer-to-peer file-sharing services like Napster, challenged the music industry's traditional business model in the early 2000s.
+Lil Nas X's "Old Town Road" (2019) broke records for the longest-running number-one single on the Billboard Hot 100 chart, spending 19 weeks at the top spot.
