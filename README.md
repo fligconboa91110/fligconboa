@@ -1,1 +1,1 @@
-The rise of K-pop in the 2010s brought Korean music and culture to the global stage, with acts like BTS, BLACKPINK, and EXO gaining massive popularity worldwide.
+Radiohead's album "OK Computer" (1997) is hailed as a masterpiece of alternative rock, blending experimental sounds with poignant lyrics on modern alienation.
