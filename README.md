@@ -1,1 +1,1 @@
-Oasis's album "(What's the Story) Morning Glory?" (1995) became a cultural phenomenon, featuring hits like "Wonderwall" and "Champagne Supernova."
+Luis Fonsi and Daddy Yankee's song "Despacito" (2017) became the most-streamed song of all time, reaching over 6.5 billion streams across various platforms.
