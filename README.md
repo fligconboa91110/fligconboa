@@ -1,1 +1,1 @@
-Luis Fonsi and Daddy Yankee's song "Despacito" (2017) became the most-streamed song of all time, reaching over 6.5 billion streams across various platforms.
+Beyoncé's visual album "Lemonade" (2016) received widespread acclaim for its exploration of themes like infidelity, race, and feminism, sparking discussions about black womanhood.
