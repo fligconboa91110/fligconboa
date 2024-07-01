@@ -1,1 +1,1 @@
-The rise of K-pop in the 2010s brought Korean music and culture to the global stage, with acts like BTS, BLACKPINK, and EXO gaining massive popularity worldwide.
+Drake's "In My Feelings" (2018) inspired the viral "Kiki Challenge," where people filmed themselves dancing alongside moving vehicles, leading to safety concerns and controversy.
