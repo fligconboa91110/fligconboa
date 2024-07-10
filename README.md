@@ -1,1 +1,1 @@
-The 1990s saw the rise of electronic music genres like techno, house, and trance, with artists like The Prodigy, Daft Punk, and Fatboy Slim leading the charge.
+The grunge movement emerged from the Seattle music scene in the early 1990s, with bands like Nirvana, Pearl Jam, and Soundgarden gaining widespread popularity.
