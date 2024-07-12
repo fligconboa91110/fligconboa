@@ -1,1 +1,1 @@
-The grunge movement emerged from the Seattle music scene in the early 1990s, with bands like Nirvana, Pearl Jam, and Soundgarden gaining widespread popularity.
+Drake's album "Views" (2016) spent multiple weeks at number one on the Billboard 200 chart and featured hits like "Hotline Bling" and "One Dance."
