@@ -1,1 +1,1 @@
-Drake's album "Views" (2016) spent multiple weeks at number one on the Billboard 200 chart and featured hits like "Hotline Bling" and "One Dance."
+Despite the challenges posed by piracy, the music industry saw the emergence of legal digital music platforms like Apple's iTunes Store, which launched in 2001.
