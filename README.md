@@ -1,1 +1,1 @@
-Despite the challenges posed by piracy, the music industry saw the emergence of legal digital music platforms like Apple's iTunes Store, which launched in 2001.
+The Backstreet Boys's self-titled debut album (1996) launched the boy band craze of the late 1990s, featuring hits like "Quit Playing Games (with My Heart)" and "Everybody (Backstreet's Back)."
