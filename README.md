@@ -1,1 +1,1 @@
-The popularity of MTV's "Unplugged" series in the 1990s led to iconic acoustic performances by artists like Nirvana, Eric Clapton, and Alice in Chains.
+The rise of grunge fashion, characterized by flannel shirts, ripped jeans, and combat boots, reflected the anti-establishment ethos of the music genre.
