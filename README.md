@@ -1,1 +1,1 @@
-Oasis's album "(What's the Story) Morning Glory?" (1995) became a cultural phenomenon, featuring hits like "Wonderwall" and "Champagne Supernova."
+The soundtrack for the film "A Star is Born" (2018), starring Lady Gaga and Bradley Cooper, received critical acclaim and commercial success, featuring hits like "Shallow" and "Always Remember Us This Way."
