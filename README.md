@@ -1,1 +1,1 @@
-Disney's animated film "Frozen" (2013) became a cultural phenomenon, with the soundtrack's hit song "Let It Go" winning the Academy Award for Best Original Song.
+The 1990s produced iconic pop stars like Britney Spears, Christina Aguilera, and the Backstreet Boys, who dominated the charts and shaped the pop music landscape.
