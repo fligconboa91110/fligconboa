@@ -1,1 +1,1 @@
-The 1990s produced iconic pop stars like Britney Spears, Christina Aguilera, and the Backstreet Boys, who dominated the charts and shaped the pop music landscape.
+The 1990s saw the rise of electronic music genres like techno, house, and trance, with artists like The Prodigy, Daft Punk, and Fatboy Slim leading the charge.
