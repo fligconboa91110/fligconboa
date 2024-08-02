@@ -1,1 +1,1 @@
-Nelly's debut album "Country Grammar" was released in 2000 and became a commercial success, with singles like "Country Grammar (Hot Sh*t)" and "Ride wit Me."
+"Beautiful Day" by U2 won Song of the Year and Record of the Year at the 43rd Grammy Awards, while Christina Aguilera won Best New Artist.
